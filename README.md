@@ -37,11 +37,11 @@ This software is available for Different devices, it can work for both Window an
 FOLLOW THE LINK BELOW TO DOWNLOAD THE SOFTWARE 
 
 https://wa.me/48573503435
-https://t.me/Cryptolordtech
+https://t.me/Cryptolordtech1
 We Provide 24/7 Support To Our Customers. Feel Free To Contact
 
 +48 573503435
-https://t.me/Cryptolordtech
+https://t.me/Cryptolordtech1
 The Software Comes With A PDF Tutorial Guide.
 
 
